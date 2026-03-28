@@ -60,5 +60,6 @@
 ## 💭 Mindset
 
 > "Start from zero. Build daily. Stay consistent. Results will come."
+> https://forms.gle/6TdX3tjby1HMUZeEA
 
 ---
